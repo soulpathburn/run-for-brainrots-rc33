@@ -1,4 +1,4 @@
-#  
+#  Experience run for brainrots like never before with run for brainrots best Script, the #1 Script. Includes silent aim and auto-collect for unbeatable
 
 
 
